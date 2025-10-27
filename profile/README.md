@@ -1,4 +1,4 @@
-<img width="1024" height="1024" alt="ChatGPT Image 24 de out  de 2025, 00_08_45" src="https://github.com/user-attachments/assets/e6739f7e-e4d9-4017-8f76-e95d3eef39d6" /><img width="1024" height="1024" alt="ChatGPT Image 24 de out  de 2025, 00_08_45" src="https://github.com/user-attachments/assets/59538631-b498-486f-8302-a931568ea0b7" />
+<img width="1024" height="1024" alt="ChatGPT Image 24 de out  de 2025, 00_14_26" src="https://github.com/user-attachments/assets/d31bde3b-84ec-453c-bc90-f491a3f5e7ca" />
 
 Inovação, Inteligência e Impacto em Cada Linha de Código.
 
