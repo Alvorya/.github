@@ -1,4 +1,3 @@
-<img width="1024" height="1024" alt="ChatGPT Image 24 de out  de 2025, 00_14_26" src="https://github.com/user-attachments/assets/d31bde3b-84ec-453c-bc90-f491a3f5e7ca" />
 
 Inovação, Inteligência e Impacto em Cada Linha de Código.
 
